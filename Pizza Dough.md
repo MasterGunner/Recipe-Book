@@ -5,7 +5,7 @@
 + 8g Table Salt
 + 8g Yeast
 + 1 Cup Water
-+ 2 Tablespoons Water
++ 2 Tablespoons Olive Oil
 
 ## Instructions
 ### For the dough
