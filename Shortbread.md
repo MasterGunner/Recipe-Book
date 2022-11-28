@@ -30,4 +30,4 @@ Alternative shape:
 - Remove from baking sheet onto cooling rack. 
 
 ## Source
-https://www.youtube.com/watch?v=4BM5gj44v_Y&t=240s
+https://www.youtube.com/watch?v=4BM5gj44v_Y
