@@ -41,5 +41,7 @@ Allow the cake to cool completely on a wire rack.
 ## Notes
 Serve with some butterscotch sauce.
 
+Adding a ¼ tsp of cardamom doesn't go arwy.
+
 ## Source
 https://www.youtube.com/watch?v=vapxh5fhMHs
