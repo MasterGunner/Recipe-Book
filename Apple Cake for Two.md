@@ -12,7 +12,7 @@
 125 mL (½ cup) all-purpose flour  
 2 mL (½ tsp) baking powder  
 2 mL (½ tsp) salt
-60 mL (¼ cup) chopped pecans, optional
+60 mL (¼ cup) chopped pecans or other nuts, optional
 
 ## Instructions
 Preheat the oven to 350°F (180ºC).  
