@@ -25,4 +25,4 @@ Bake for 9 to 10 minutes in the preheated oven. Allow cookies to cool on baking 
 ## Notes
 
 ## Source
-https://www.allrecipes.com/recipe/17165/big-soft-ginger-cookies/
+Adapted from https://www.biggerbolderbaking.com/oatmeal-cookies-best-ever/
