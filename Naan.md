@@ -1,7 +1,7 @@
 # Easy Naan
 
 ## Ingredients
-+ 2 tsp dry active yeast ($0.19)
++ 2 tsp dry active yeast
 + 1 tsp sugar
 + 1/2 cup warm water
 + 2 1/2 - 3 cups flour, divided
