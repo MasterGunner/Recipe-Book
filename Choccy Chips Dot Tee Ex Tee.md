@@ -1,16 +1,16 @@
 # Choccy Chips Dot Tee Ex Tee.md
 
 ## Ingredients
-- 1/4 lbs butter
-- 1/4 lbs brown sugar
-- 1/4 lbs white sugar
-- 1 eggs
-- 2 tsp vanilla (or more, to taste)
-- 1/2 lb AP flour
+- 1/2 cup butter
+- 113g brown sugar (1/4 lb)
+- 113g white sugar (1/4 lb)
+- 1 egg
+- 2 tsp vanilla
+- 227g AP flour (1/2 lb)
 - 1/2 tsp salt
 - 1/2 tsp baking soda
 - 1/2 tsp baking powder
-- dark chocolate chips (3-6 oz, 0.5-1 cups, or really just kinda however much you want)
+- dark chocolate chips (3-6 oz, 85-170g, 0.5-1 cups, or really just kinda however much you want)
 - chopped nuts (walnuts, pecans, or something else. 0.5-1 cups, or really just kinda however much you got)
 
 ## Instructions
