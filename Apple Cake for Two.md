@@ -45,3 +45,5 @@ Adding a ¼ tsp of cardamom doesn't go arwy.
 
 ## Source
 https://www.youtube.com/watch?v=vapxh5fhMHs
+
+Other Apple Cake Recipe: https://www.youtube.com/watch?v=QQhiBqzeySI
