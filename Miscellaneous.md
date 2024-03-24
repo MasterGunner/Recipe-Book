@@ -9,3 +9,6 @@ Pat fish dry and season both sides with salt and pepper.
 Combine 1 cup bread crumbs with 6 tablespoons of melted butter. Use to coat the top of the fish.
 
 Bake at 350F for 15 minutes
+
+# To Try
+https://www.crosbys.com/sarahs-molasses-brown-bread/ 
