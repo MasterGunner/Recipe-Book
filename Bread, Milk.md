@@ -1,7 +1,7 @@
 # Milk Bread
 
 ## Ingredients
-+ 100% Flour (x4 for one loaf)
++ 100% Flour
 + 65% Liquid (half milk, half water)
 + 11% Fat (Butter or Oil)
 + 9.7% Sugar
@@ -28,6 +28,7 @@ Let it proof again, until doubled in size again, then bake it. ( no punching thi
 
 ## Notes
 Really more of a Pain de Mie.
+Start with 400g flour for an 8x4 bread pan, or 500g for a 9x4x4 pullman pan.
 
 ## Source
 https://www.youtube.com/watch?v=ycztOGTIX-s
