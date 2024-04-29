@@ -28,3 +28,25 @@ Stir in glass with ice.
 - ¼oz Lemon Juice
 
 Shake with ice, serve up, garnish with a twist of lemon
+
+## Rusty Nail 
+- 1½oz ounces scotch
+- ¾oz Drambuie
+
+Add the scotch and Drambuie into a mixing glass with ice and stir until well-chilled. Strain into a rocks glass over one large ice cube. 
+
+## Rusty Compass
+- 1½oz ounces peaty scotch
+- ¾oz Drambuie
+- ½oz Heering cherry liqueur (or alternative)
+- Garnish: orange twist 
+
+Add the scotch, Drambuie and Heering into a mixing glass with ice and stir until well-chilled. Strain into a cocktail glass. Garnish with an orange twist. 
+
+## Rob Roy
+- 2oz scotch
+- ¾oz sweet vermouth
+- 3 dashes Angostura bitters
+- Garnish: brandied cherries
+
+Add the scotch, sweet vermouth and bitters into a mixing glass with ice and stir until well-chilled. Strain into a chilled Nick & Nora or cocktail glass. Garnish with speared brandied cherries. 
