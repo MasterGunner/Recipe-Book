@@ -25,7 +25,7 @@ Stir in glass with ice.
 - 1oz Mezcal
 - 1oz St Germain
 - ½oz Red Vermouth^1
-- ¼oz Lemon Juice
+- ½oz Lemon Juice
 
 Shake with ice, serve up, garnish with a twist of lemon
 
