@@ -50,3 +50,19 @@ Add the scotch, Drambuie and Heering into a mixing glass with ice and stir until
 - Garnish: brandied cherries
 
 Add the scotch, sweet vermouth and bitters into a mixing glass with ice and stir until well-chilled. Strain into a chilled Nick & Nora or cocktail glass. Garnish with speared brandied cherries. 
+
+## Mezcal Negroni
+- 1oz mezcal
+- 1oz campari
+- 1oz sweet vermouth
+- Garnish: orange half-wheel 
+
+Add the mezcal, Campari, and sweet vermouth into a mixing glass with ice and stir until well-chilled. Strain into a rocks glass over one large ice cube. Garnish with an orange half-wheel. 
+
+## Boulevardier
+- 1¼oz bourbon
+- 1oz campari
+- 1oz sweet vermouth
+- Garnish: orange twist
+
+Add bourbon, Campari and sweet vermouth into a mixing glass with ice and stir until well-chilled. Strain into a rocks glass over fresh ice. Garnish with an orange twist. 
