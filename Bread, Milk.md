@@ -31,5 +31,7 @@ Really more of a Pain de Mie.
 
 Start with 400g flour for an 8x4 bread pan, or 500g for a 9x4x4 pullman pan.
 
+For Pullman, experiment with 350°F for 45 minutes.
+
 ## Source
 https://www.youtube.com/watch?v=ycztOGTIX-s
