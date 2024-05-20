@@ -66,3 +66,21 @@ Add the mezcal, Campari, and sweet vermouth into a mixing glass with ice and sti
 - Garnish: orange twist
 
 Add bourbon, Campari and sweet vermouth into a mixing glass with ice and stir until well-chilled. Strain into a rocks glass over fresh ice. Garnish with an orange twist. 
+
+## Goyas Coup de Gras
+- 2oz tequila
+- ½oz sweet vermouth
+- ¾oz Lime Juice
+- ¼oz simple syrup
+- 1 dash of orange bitters
+
+Shake, strain, garnish with an orange slice.
+
+## Lion's Tail
+- 2oz bourbon
+- ½oz lime juice
+- ½oz allspice dram
+- 1 dash Angostura bitters
+- 1 teaspoon simple syrup
+
+Combine bourbon, lime, allspice dram, bitters, and simple syrup in a cocktail shaker and fill with ice. Shake well and strain into chilled cocktail glass. 
