@@ -74,7 +74,7 @@ Add bourbon, Campari and sweet vermouth into a mixing glass with ice and stir un
 - ¼oz simple syrup
 - 1 dash of orange bitters
 
-Shake, strain, garnish with an orange slice.
+Shake with ice, strain, garnish with an orange slice.
 
 ## Lion's Tail
 - 2oz bourbon
@@ -84,3 +84,11 @@ Shake, strain, garnish with an orange slice.
 - 1 teaspoon simple syrup
 
 Combine bourbon, lime, allspice dram, bitters, and simple syrup in a cocktail shaker and fill with ice. Shake well and strain into chilled cocktail glass. 
+
+## Modified Paper Plane (AKA Cargo Cult?)
+- 1oz bourbon (or other whisky)
+- 1oz aperol
+- 1oz allspice dram
+- 1oz lemon juice
+
+Shake with ice, strain, garnish with an orange slice.
