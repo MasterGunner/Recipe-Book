@@ -92,3 +92,21 @@ Combine bourbon, lime, allspice dram, bitters, and simple syrup in a cocktail sh
 - 1oz lemon juice
 
 Shake with ice, strain, garnish with an orange slice.
+
+## The Louisville
+- 2oz rye (or scotch, or other whisky)
+- ¾oz dry curacao
+- ¼oz allspice dram
+
+Stir with ice, strain over large ice cube, garnish with orange.
+
+## El Presidente
+- 1½oz Rum
+- ¾oz dry vermouth
+- ¼oz orange curacao
+- 2 dashes grenadine
+
+Stir with ice, strain into cocktail glass.
+
+## To Try
+- Curacao Smash
