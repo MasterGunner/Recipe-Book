@@ -43,14 +43,6 @@ Add the scotch and Drambuie into a mixing glass with ice and stir until well-chi
 
 Add the scotch, Drambuie and Heering into a mixing glass with ice and stir until well-chilled. Strain into a cocktail glass. Garnish with an orange twist. 
 
-## Rob Roy
-- 2oz scotch
-- ¾oz sweet vermouth
-- 3 dashes Angostura bitters
-- Garnish: brandied cherries
-
-Add the scotch, sweet vermouth and bitters into a mixing glass with ice and stir until well-chilled. Strain into a chilled Nick & Nora or cocktail glass. Garnish with speared brandied cherries. 
-
 ## Mezcal Negroni
 - 1oz mezcal
 - 1oz campari
