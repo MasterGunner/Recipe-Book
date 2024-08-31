@@ -100,5 +100,18 @@ Stir with ice, strain over large ice cube, garnish with orange.
 
 Stir with ice, strain into cocktail glass.
 
+## The Seahorse
+- 1½oz bourbon
+- 1/4 oz St Elizabeth Allspice
+- ½oz dry Curacao
+- ½oz lemon juice
+- ½oz simple syrup
+- ¼oz - ½oz orange juice (optional)
+- 2 dashes orange bitters
+- Cinnamon
+- Mint
+
+Combine all ingredients in a shaker or mixing glass and fill with ice. Shake vigorously until well-chilled, then strain into a rocks glass with large ice. Top with freshly ground cinnamon (rub a cinnamon stick on a microplane!) and a handful of fresh mint.
+
 ## To Try
 - Curacao Smash
