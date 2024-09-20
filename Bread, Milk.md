@@ -3,8 +3,8 @@
 ## Ingredients
 + 100% Flour
 + 65% Liquid (half milk, half water)
-+ 11% Fat (Butter or Oil)
-+ 9.7% Sugar
++ 10% Fat (Butter or Oil)
++ 5% Sugar
 + 2% Salt
 + 1% Yeast
 
