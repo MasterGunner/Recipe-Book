@@ -6,8 +6,8 @@
 + ¾ Tbsp. yeast (instant yeast) *
 + ⅔ cup Crosby’s Fancy Molasses
 + ¾ cup rolled oats (old fashioned, not instant)
-+ 2 Tbsp. butter
-+ 2 tsp. salt
++ 1½ Tbsp. butter
++ 1½ tsp. salt
 + ¾ cup boiling water
 + ¾ cup cold water
 + 1½ cups whole wheat flour (spooned in) (can be all-purpose)
