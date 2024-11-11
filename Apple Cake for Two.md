@@ -1,18 +1,18 @@
 # Apple Cake for Two
 
 ## Ingredients
-60 mL (¼ cup) butter, melted
-125 mL (½ cup) sugar mix white & brown  
-1 large egg  
-2 mL (½ tsp) cinnamon  
-1 mL (¼ tsp) cloves  
-1 mL (¼ tsp) allspice  
-2 mL (½ tsp) pure vanilla extract  
-125 mL (½ cup) packed grated apple (from 1 - small apple)  
-125 mL (½ cup) all-purpose flour  
-2 mL (½ tsp) baking powder  
-2 mL (½ tsp) salt
-60 mL (¼ cup) chopped pecans or other nuts, optional
+- ¼ cup butter, melted
+- ½ cup sugar mix white & brown  
+- 1 large egg  
+- ½ tsp cinnamon  
+- ¼ tsp cloves  
+- ¼ tsp allspice  
+- ½ tsp pure vanilla extract  
+- ½ cup packed grated apple (from 1 - small apple)  
+- ½ cup all-purpose flour  
+- ½ tsp baking powder  
+- ½ tsp salt
+- ¼ cup chopped pecans or other nuts, optional
 
 ## Instructions
 Preheat the oven to 350°F (180ºC).  
