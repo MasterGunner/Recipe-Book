@@ -13,7 +13,7 @@ Bake at 350F for 15 minutes
 # To Copy
 https://sallysbakingaddiction.com/easy-homemade-soft-pretzels/
 
-https://www.crosbys.com/sarahs-molasses-brown-bread/ 
+https://www.melskitchencafe.com/french-bread/
 
 # To Try
 
