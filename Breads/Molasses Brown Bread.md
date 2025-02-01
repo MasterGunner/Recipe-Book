@@ -19,10 +19,10 @@
 3. Add the 1 cup boiling water, whisk, and then add the 1 cup cold water.
 4. Stir in yeast mixture.
 5. Add flour gradually and scrape dough onto a floured surface to knead in the final cup of flour.
-6. Cut dough in half and place in two large bread pans that have been well greased or lined with parchment paper.
-7. Cover each pan with a dishtowel and set in a warm place to rise until almost double in size (about 1 1/2 hours).
-8. Remove dishtowels and bake at 325 F for about an hour
-9. When ready, remove from oven and let cool about five minutes before removing from pans to cool.
+6. Place pullman bread pan that has been well greased or lined with parchment paper.
+7. Cover pan with a dishtowel and set in a warm place to rise until almost double in size (about 1 1/2 hours).
+8. Remove dishtowel and bake at 325 F for about an hour
+9. When ready, remove from oven and let cool about five minutes before removing from pan to cool.
 
 
 ## Notes
