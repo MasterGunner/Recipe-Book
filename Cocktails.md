@@ -113,5 +113,23 @@ Stir with ice, strain into cocktail glass.
 
 Combine all ingredients in a shaker or mixing glass and fill with ice. Shake vigorously until well-chilled, then strain into a rocks glass with large ice. Top with freshly ground cinnamon (rub a cinnamon stick on a microplane!) and a handful of fresh mint.
 
+## New Brunswick
+(AKA Revolving Door, Maple Leaf, Aviation)
+- 2oz Scotch whisky
+- 1oz lemon juice
+- 1oz maple syrup
+
+Stir with ice, serve in cocktail glass
+
+## Canadian Margarita
+(My experiment)
+- 2oz Mezcal
+- 1oz lime juice
+- 1oz maple syrup
+- ½oz dry Curacao
+- 2 dashes orange bitters
+
+Stir with ice, serve in cocktail glass
+
 ## To Try
 - Curacao Smash
